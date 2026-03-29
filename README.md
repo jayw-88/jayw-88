@@ -1,3 +1,3 @@
 **Salutations, good sir/madam!**
 
-I make random things.
+Welcome to my profile! Check out my projects below ↓
